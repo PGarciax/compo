@@ -1,0 +1,12 @@
+ ## Linkin Park
+
+  Linkin Park is an American rock band from
+  Agoura Hills, California. Formed in 1996,
+  the band rose to international fame with their 
+  debut album Hybrid Theory (2000), which was certified diamond by
+  the RIAA in 2005 and multi-platinum in several other countries.[1]
+  Their following studio album Meteora.
+
+
+  Album 
+  Meteora World Tour.
